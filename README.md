@@ -1,0 +1,2 @@
+# Rashid-
+To make money 💰
